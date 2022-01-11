@@ -30,7 +30,7 @@ Spielanleitung
 Link:
 Wikipedia: https://de.wikipedia.org/wiki/Arnold_Schönberg
 
-https://www.schoenberg.at/index.php/de/news-sp-1233479798/1967-schach-mit-schoenberg
+Schach mit Schönberg: https://www.schoenberg.at/index.php/de/news-sp-1233479798/1967-schach-mit-schoenberg
 
 Probespiel: https://www.youtube.com/watch?v=6RsEl-2iJP4
 
